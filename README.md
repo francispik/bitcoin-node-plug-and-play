@@ -15,3 +15,4 @@ Full Sovereignty: Your keys, your data, your rules.
 
 Price: $799 (Payable via BTC / Lightning) Stock Status: 3 Units ready for immediate worldwide dispatch.
 CONTACT US : https://t.me/vaultcoreos
+<img width="2752" height="1536" alt="Choosen" src="https://github.com/user-attachments/assets/7a2a45ec-5a0e-461d-9282-ef5e0a9d5416" />
